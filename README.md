@@ -2,7 +2,7 @@
 - 👀 I’m interested in App Development , Web Develepment , AI & Machine Learning and any programming languages ...
 - 🌱 I’m currently learning Front and Back end Development or Full stack and App Development 
 - 💞️ I’m looking to collaborate on any App and Web development projects
-- 📫 How to reach me____ email account___ BezawitDires@gmail.com and ___Instagram ____ @___belziia_05
+- 📫 How to reach me____ email account___ belzii121@gmail.com and ___Instagram ____ @___belziia_05
 
 
 <!---
